@@ -10,7 +10,7 @@ I am enthusiastic about software development, problem-solving, and continuous le
 
 Let's connect! Feel free to reach out to me through the following channels:
 
-- **LinkedIn:** [Ismail Oubella](https://www.linkedin.com/in/ismail-oubella-ba06a82a1/)
+- **LinkedIn:** [Ismail Oubella](https://www.linkedin.com/in/oubellaismail/)
 - **Twitter:** [@IsmailOubella](https://twitter.com/Ismail_code)
 
 ## Let's Collaborate!
