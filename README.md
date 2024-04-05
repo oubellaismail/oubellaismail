@@ -11,7 +11,7 @@ I am enthusiastic about software development, problem-solving, and continuous le
 Let's connect! Feel free to reach out to me through the following channels:
 
 - **LinkedIn:** [Oubella Ismail](https://www.linkedin.com/in/oubellaismail/)
-- **Twitter:** [@Oubella Ismail](https://twitter.com/oubellaismail_)
+- **Twitter:** [@Oubella Ismail](https://twitter.com/oubellaismaill)
 
 ## Let's Collaborate!
 
