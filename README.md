@@ -1,6 +1,6 @@
 # Ismail Oubella - Computer Science Student
 
-Welcome to my GitHub profile! I'm Ismail Oubella, a dedicated computer science student at EST Essaouira, passionate about exploring the vast possibilities in the world of technology.
+Welcome to my GitHub profile! I'm Ismail Oubella, a dedicated computer science student, passionate about exploring the vast possibilities in the world of technology.
 
 ## About Me
 
