@@ -13,9 +13,5 @@ Let's connect! Feel free to reach out to me through the following channels:
 - **LinkedIn:** [Oubella Ismail](https://www.linkedin.com/in/oubellaismail/)
 - **Twitter:** [@Oubella Ismail](https://twitter.com/oubellaismaill)
 
-## Let's Collaborate!
-
-I'm always open to collaboration and discussions related to technology. Whether it's about projects, ideas, or just a friendly chat, feel free to connect with me through any of my social links mentioned above. Let's build something amazing together!
-
 Thank you for visiting my profile! 🚀
 
